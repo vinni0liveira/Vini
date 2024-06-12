@@ -1,3 +1,5 @@
 # Vini
 as varias faces de mim
-![Clubbing Amazon Bots Futurama Snusnu GIF](https://github.com/vinni0liveira/Vini/assets/172454259/30e8bec0-8ce8-4c6c-9164-599d15159abe)
+![clubbing-amazon-bots-futurama-snusnu](https://github.com/vinni0liveira/Vini/assets/172454259/41031689-05a8-4965-83ff-2eab87932cb6)
+
+
